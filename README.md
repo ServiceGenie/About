@@ -1,5 +1,6 @@
 # About ABOUT 
-Welcome to ServiceGenie
+Welcome to ServiceGenie.
+
 We are slowly becoming the fastest growing on-demand service and product comparison platform in Ireland. We have hundreds of services & retail providers to choose from. You will Receive anything from one to one-hundred replies within one hour of submitting your service or product inquiry form directly to your device . and did I tell you it’s Completely free to use. 
 
 We have hundreds of services & retail providers to choose from such has. Plumbers, Carpenters, Builders, Gardening, Window/Gutter cleaning, Power washing, Website Design looking for there next job. We also have hundreds of retailers, for example. footwear, clothing, jewelry, tools, vehicles, holidays, Electronics waiting to give you the most competitive prices in the country & the best thing is it’s free. 
